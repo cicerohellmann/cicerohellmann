@@ -1,1 +1,1 @@
-I'm working on developing sinergic applications with AI
+I'm working on developing synergic applications with AI
