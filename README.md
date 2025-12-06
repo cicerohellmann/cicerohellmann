@@ -1,1 +1,1 @@
-I'm working on developing synergic applications with AI
+I'm doing games on my free time and writing software so you can enjoy your vehicle better at work
